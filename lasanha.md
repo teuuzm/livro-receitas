@@ -1,6 +1,0 @@
-﻿# **LASANHA**:chicken:
-
-### INGREDIENTES:
-
-
-
